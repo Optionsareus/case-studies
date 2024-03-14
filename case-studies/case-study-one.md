@@ -3,7 +3,7 @@ Analysis and Review
 ======
 <!-- mdformat on -->
 <p align="center">
-  <img src="https://ibb.co/RgX5ZDt" alt="Options Are Us" />
+  <img src="https://i.postimg.cc/xCVmYbdG/optionsareus-03.jpg" alt="Options Are Us" />
 </p>
 
 
